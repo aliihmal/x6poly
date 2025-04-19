@@ -13,4 +13,4 @@ Chance and Community Chest cards themed with Lebanese humor and current events
 Rules adapted for both classic and new players
 
 Getting Started
-Instructions for playing, printing, or using a digital version of the game can be found below.
+Instructions for playing, printing, or using a digital version of the game can be found below.  
